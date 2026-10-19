@@ -1,0 +1,1 @@
+# Quranic-words-From-the-script-of-the-Shamarli-Quran
